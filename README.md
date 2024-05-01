@@ -1,4 +1,4 @@
-- 👋 Hi, I’m trowely.  Follow @trowely on X.
+- 👋 Hi, I’m trowely.  Follow @trowely_ on X.
 - 👀 I’m interested in brick laying
 - 🌱 I’m currently learning mortor techniques
 - 💞️ I’m looking to collaborate with fellow masons
